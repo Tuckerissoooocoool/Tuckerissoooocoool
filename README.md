@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Tuckerissoooocoool
+- 👀 I’m interested in Being cool
+- 🌱 I’m currently learning Being cool
+- 💞️ I’m looking to collaborate on Being cool
+- 📫 How to reach me IMSOCOOL@Outlook.com
